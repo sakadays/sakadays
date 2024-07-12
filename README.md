@@ -4,5 +4,5 @@
 
 ![](https://files.catbox.moe/qoab57.png)
 
-[rentry](https://rentry.co/steezy)‎⠀⠀[retrospring](https://retrospring.net/@tease)
+
 
